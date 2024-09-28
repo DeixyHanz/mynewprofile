@@ -1,0 +1,2 @@
+# portofoliopertama
+INI ADALAH PORTOFOLIO PERTAMA SAYA
